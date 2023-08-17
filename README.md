@@ -1,1 +1,0 @@
-# richardvozar.github.io
